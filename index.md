@@ -25,7 +25,7 @@ Two regional credit associations, the Western Nurserymen’s Credit Reporting Se
 
 A prospective member becomes a member of the NHCA when the membership has been notified and no member opposes, the member’s annual dues cheque and Application for Membership has been received, and the NHCA Directors give final approval.
 
-Download link for the _Membership Application_ – still coming
+[Download link for the _Membership Application_](/membership_application.pdf)
 
 # Contact
 
