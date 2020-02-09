@@ -1,3 +1,7 @@
+---
+title: Purpose
+---
+
 # The Purpose and Operation of the National Horticultural Credit Association (NHCA)
 
 The Constitution states, “The name of the Society is National Horticultural Credit Association.”  NHCA is a non-profit Society.
