@@ -17,7 +17,8 @@ Two regional credit associations, the Western Nurserymen’s Credit Reporting Se
 # Testimonials
 
 > The annual membership dues are a bargain, even if they only save you from one bad account per year!
- - Walter Altenmueller, Reimer’s Nurseries Ltd.
+
+Walter Altenmueller, Reimer’s Nurseries Ltd.
 
 # Membership
 
