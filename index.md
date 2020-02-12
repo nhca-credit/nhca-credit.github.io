@@ -19,7 +19,18 @@ Two regional credit associations, the Western Nurserymen’s Credit Reporting Se
 
 > The annual membership dues are a bargain, even if they only save you from one bad account per year!
 
--- Walter Altenmueller, Reimer’s Nurseries Ltd.
+-- W. Altenmueller, Reimer’s Nurseries Ltd.
+
+
+> The NHCA is a great Association that has saved us from selling to customers that may not pay.
+
+-- D. Wein, Clearview Horticultural Products Inc.
+
+
+> NHCA allows me to see all the creditors my client owes money to in all sectors related to our industry.
+
+-- B. Gifford, Dutchmaster Nurseries Ltd.
+
 
 # Membership
 
