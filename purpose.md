@@ -34,4 +34,3 @@ Members report delinquent accounts, over 90 days and over 6 months, at the end o
 
 As directed by the President, the administrator is responsible for all communications to members—email, receiving and entering into database Delinquent Accounts, compiling and sending reports to all members, keeping members informed of all meetings, sending out agendas and minutes of meetings, keeping up-to-date lists and records of members addresses, phone, fax, email addresses, etc., providing updated membership lists, and other responsibilities relative to the association.
 
-On behalf of NHCA Directors, compiled by Hazel Campbell, NHCA Administrator, Jan. 4, 2001 (Revised Feb. 23, 2001, January 6, 2006 & March 12, 2007; revised by Walter Altenmueller November 21, 2016; revised by Sharon Bowles March 7, 2017 & October 12, 2018.)
