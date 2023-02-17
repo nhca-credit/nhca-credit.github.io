@@ -43,5 +43,5 @@ A prospective member becomes a member of the NHCA when the membership has been n
 National Horticultural Credit Association  
 PO Box 4112, Stn Yarrow Main  
 Chilliwack, BC  
-V2R 5E8  
+V2R 5H8  
 Email: <info@nhca.credit>  
